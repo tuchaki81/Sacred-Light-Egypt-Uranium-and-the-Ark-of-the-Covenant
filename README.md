@@ -16,3 +16,13 @@ Every great archaeological mystery begins with a deceptively ordinary question. 
 This essay is the product of exactly that exercise: a rigorous, open-minded inquiry into whether the ancient Egyptians may have encountered radioactive minerals, what they made of them, how they managed them — and whether those materials eventually departed Egypt inside what history calls the Ark of the Covenant, guarded by a priestly caste whose ceremonial garments, read through a modern lens, constitute a remarkably detailed personal protective equipment protocol for radiological hazard.
 
 No claim in this essay is presented as established fact. The framework presented here is speculative — but it is grounded in real physics, real chemistry, real archaeology, and real textual evidence. The goal is not to rewrite history but to ask: what if the ancients observed something real, and simply named it differently?
+
+https://www.dmns.org/catalyst/summer-2025/radiant-science-the-museums-fluorescent-rocks/#:~:text=That's%20right:%20rocks%20can%20glow,like%20autunite%20are%20always%20fluorescent.
+
+https://www.youtube.com/watch?v=ZuLk2Qi0-AI&t=18s
+
+https://www.youtube.com/watch?v=R6uXMiDubKI&t=102s
+
+https://www.youtube.com/watch?v=v8h8PzqREwo
+
+
